@@ -1,0 +1,1 @@
+# -Strategic-and-predictive-model-for-stock-trading-
